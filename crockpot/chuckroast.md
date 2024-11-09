@@ -9,7 +9,7 @@
 - Carrots
 - Celery
 - Yellow Onion
-- Green Peas
+- Green Peas (optional)
 - Crock Pot Beef Stew Seasoning
 
 ### Instructions
