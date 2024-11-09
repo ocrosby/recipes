@@ -8,7 +8,7 @@
 - Russett Potatoes
 - Carrots
 - Celery
-- Onion
+- Yellow Onion
 - Green Peas
 - Crock Pot Beef Stew Seasoning
 
