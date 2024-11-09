@@ -5,7 +5,7 @@
 ### Ingredients
 
 - Chuck Roast
-- Potatoes
+- Russett Potatoes
 - Carrots
 - Celery
 - Onion
