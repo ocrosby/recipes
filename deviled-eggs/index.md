@@ -27,7 +27,7 @@
 - Heat the saucepan over medium-high heat until the water comes to a rolling boil.
 - Once the water is boiling, cover the saucepan with a lid and remove it from the heat.
 - Let the eggs sit in the hot water for 12 minutes.
-- After 12 minutes, transfer the eggs to a bowl of ice water to cool for about 5 minutes.
+- After 12 minutes, transfer the eggs to a bowl of ice water to cool for about 15 minutes.
 - Once cooled, peel the eggs.
 
 ## Tips
