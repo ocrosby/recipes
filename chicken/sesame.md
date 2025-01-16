@@ -6,12 +6,12 @@
 - Seasame Oil
 - Garlic Cloves
 - Green Onions
-- Seasame Seeds (preferably toasted)
+- Seasame Seeds (preferably toasted or dry roasted)
 - Chicken winglets
-- Corn Starch (optional)
 - Salt
 - All Seasoning
 - Garlic Salt
+- Laury Seasoning Salt
 
 ## Instructions
 
@@ -22,6 +22,8 @@ Season it with garlic salt
 Add the soy sauce
 Add the minced garlic
 cover with seasame seeds
-Laury Seasoning Sault
+Season with Laury Seasoning Salt
+
+Goes well with green beans and rice.
 
 Bake for 30 minutes, turning once, until the chicken is cooked through and the skin is crispy.
