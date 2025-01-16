@@ -1,4 +1,4 @@
-# Seasame Chicken
+# Sesame Chicken
 
 ## Ingredients
 
