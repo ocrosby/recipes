@@ -37,3 +37,4 @@ Thoroughly coat the chicken breast in the sauce on both sides.
 
 If using an air fryer place the air fryer liner backing paper in the container, place the chicken breast in and Air fry at 392 degrees Fahrenheit for 25 minutes.  Flip and air dry for another 5-6 minutes.
 
+If cooking in the oven, cook for 30 minutes at 375 degrees Farenheit.
