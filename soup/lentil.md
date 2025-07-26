@@ -2,6 +2,7 @@
 
 ## Ingredients
 
+- 1 Red Bell Pepper
 - 1 Yellow Onion Large, chopped
 - 2 Celery stalks, chopped
 - 2 Carrots Medium, diced
@@ -20,16 +21,27 @@
 - 3 cups (380 g) Dried green lentils, rinsed
 - 2-3 tablespoons Parsley/coriander chopped
 - 2 tablespoons (30 ml) Lemon juice fresh
+- white wine vinegar
 
 ## Instructions
 
 - Rinse lentils in the straininer under cold water
 - Medium size dice the potatoes after peeling, and drop them in a container with cold water
-- In a large pot heat on low olive oil (and maybe some butter), add chopped onion and sauté for 15 minutes, until slightly golden. 
-- Add chopped celery and diced carrots, cook for 4-5 minutes, until tender. 
-- Add crushed garlic, coriander/cumin, dried oregano, paprika and cook, stirring for 1 minutes.
+- Add Olive Oil
+- Add melted Irish Butter
+- Add chopped celery
+- Add chopped carrots
+- Add chopped red bell pepper
+- Add chopped onion 
+- Stir to coat the fluid mixture
+- Sauté for 5-7 minutes on medium high
+- Add crushed garlic
+- Add coriander/cumin
+- Add dried oregano
+- Add Paprika
+- Cook, stirring for 1 minute.
 - Add minced/chopped tomatoes and cook for 1-2 minutes.
-- deglaze with a half cup of white wine chardonee or savingon blanc
+- deglaze with a half cup of white wine vineagar
 - Add potatoes after draining.
 - Add rinsed lentils
 - Add 2 Bay Leaves
