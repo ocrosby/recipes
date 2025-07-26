@@ -65,6 +65,11 @@ Note: It's better if you soak your lentils overnight.
 - Add to a bowl and and some fresh chopped parsley to the top
 - Serve!
 
+After 45 minutes of cooking if it's too watery let cook for another 15 minutes uncovered to reduce.
+
+When serving add a little parmesan cheese, a little fresh chopped parsley, and some olive oil on the plate/bowl.
+The olive oil will add additional flavor.
+
 ## References
 
 - [Best Lentil Soup Recipie - Website](https://thecookingfoodie.com/recipe/the-best-lentil-soup-recipe/#recipe)
