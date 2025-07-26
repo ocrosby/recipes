@@ -13,6 +13,7 @@
 - 1 teaspoon of ground Coriander
 - 1 teaspoon Dried Oregano
 - 1 teaspoon Paprika
+- 1/2 teaspoon Tumeric
 - Salt to taste
 - Pepper to taste
 - 1 can (400 g) Diced tomatoes/chopped tomatoes 14oz
@@ -22,6 +23,8 @@
 - 2-3 tablespoons Parsley/coriander chopped
 - 2 tablespoons (30 ml) Lemon juice fresh
 - white wine vinegar
+
+Note: It's better if you soak your lentils overnight.
 
 ## Instructions
 
@@ -39,6 +42,7 @@
 - Add coriander/cumin
 - Add dried oregano
 - Add Paprika
+- Add Tumeric
 - Cook, stirring for 1 minute.
 - Add minced/chopped tomatoes and cook for 1-2 minutes.
 - deglaze with a half cup of white wine vineagar
@@ -48,7 +52,9 @@
 - Add a can of drained chicpeas
 - Add vegetable stock
 - Salt and Pepper to taste 
-- Bring to a boil over high heat, then, reduce the heat to low, cover with a lid, and simmer for 30-45 minutes. 
+- Bring to a boil over high heat
+- Add a handfull of chopped parsley
+- reduce the heat to low, cover with a lid, and simmer for 45 minutes. 
 - Remove Bay Leaves
 - Add chopped coriander/parsley, give a quick stir and turn the heat off.
 - Add the juice from one lemon (or two)
