@@ -1,4 +1,4 @@
-# Lentil Soup
+# Omar's Lentil Soup
 
 ## Ingredients
 
