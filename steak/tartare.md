@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-* Raw ground beef, strip loin, ground chuck, remove fat
+* Raw ground beef, strip loin, ground chuck, ribeye, remove fat
 * Raw egg yolk
 * chives
 * shallots
@@ -13,5 +13,7 @@
 * pepper 
 * salt
 * capers
+* gherkins
+* micro arrugala
 
 
