@@ -78,6 +78,14 @@ Recipe adapted from Nicole's Allrecipes demonstration
 27. Cook until liquid is absorbed
 28. Serve gumbo over rice in bowls
 
+## Variations
+
+### One-Pan Gumbo with Shrimp
+For a heartier version, add shrimp to create a chicken, sausage, and shrimp gumbo:
+- Add 1 lb peeled and deveined shrimp during the last 5-10 minutes of cooking
+- Cook just until shrimp turn pink and opaque
+- This variation combines the best of land and sea for a rich, flavorful one-pan meal
+
 ## Cooking Tips
 
 - The roux is the foundation of gumbo - take your time with this step
@@ -86,6 +94,8 @@ Recipe adapted from Nicole's Allrecipes demonstration
 - If the roux burns, discard it and start over
 - Gumbo tastes even better the next day after flavors have melded
 - Can be frozen for up to 3 months
+- For a one-pan version, you can add shrimp in the final minutes of cooking
+- Fresh vegetables like bell peppers and celery are key to authentic flavor
 
 ## Prep Time
 30 minutes
